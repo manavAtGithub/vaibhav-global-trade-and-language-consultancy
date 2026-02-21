@@ -1,2 +1,2 @@
-# vaibhav-global-trade-and-language-consultancy
+# Vaibhav Global Trade & Language Consultancy
 Industrial Consultancy, Multilingual Translation &amp; Global Trade Platform
